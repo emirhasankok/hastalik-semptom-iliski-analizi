@@ -1,0 +1,1 @@
+# hastalik-semptom-iliski-analizi
